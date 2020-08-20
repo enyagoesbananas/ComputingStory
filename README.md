@@ -10,3 +10,8 @@ My favorites:
 * Trolls (every. single. one of their shows :DDD)
 * Frozen 1 and 2
 * Zootopia
+
+Favorite Foods:
+1. Pizza 
+2. Mac and Cheese. Lots of cheese.
+3. Fish and Chips 

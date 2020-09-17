@@ -31,4 +31,4 @@ whose hair flowed like the breeze and hides in her stronghold.
 
 It was another day. She did not know what day it was, she did not need to care. 18 year old Kaylie was staring out the window blankly. She was alone at home again, for her father had gone to work.
 She sighed. What was she going to do now? She had done every chore to do in the house; even mopped the floor twice!
-She stood up and took her book. It was about time she had to go to the library to borrow and return her books. She hoped she wouldn't be seen, but then again, she hadn't been noticed for 10 years ever since she started staying at home.
+She stood up and took her book. It was about time she had to go to the library to borrow and return her books. She hoped she wouldn't be seen, but then again, she hadn't been noticed for 10 years ever since she started staying at home. She longed for an adventure, just liked the many stories she had read. Perhaps she would even find her prince! Who knows! As she stared out of the window, she pictured herself wandering around in the green grassy fields, dancing with her true love.
